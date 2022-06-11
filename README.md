@@ -2,4 +2,4 @@
 # THIS IS THE SECOND LINE 
 # This change is done ONLY on the feature1 branch
 why GOD!!!!!?
-# what iin the world is going on?
+# i can do all things through God who gives me strength
